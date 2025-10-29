@@ -27,7 +27,7 @@ Cada NFT simboliza la fusión entre **arte, identidad y tecnología**, llevando 
 ### ⚡ Créditos
 
 **Creado por:**  
-👤 *Leandro Agustín Pintos* — Cofundador de Tropfen | Estratega Comercial & Financiero  
+👤 *Leandro Pintos* — Cofundador de Tropfen | Estratega Comercial & Financiero  
 💍 *Ariana Arbelaiz* — Cofundadora & Diseñadora de Tropfen  
 
 **Tropfen** — pioneros en joyería cripto en LATAM, fusionando el arte físico con el valor digital.
